@@ -1,4 +1,4 @@
-## ** Mafia II – The Ultimate Classic Crime Game You Need to Play in 2025**
+## **Mafia II – The Ultimate Classic Crime Game You Need to Play in 2025**
 
 ![download (18)](https://github.com/user-attachments/assets/5e016583-e0e3-4310-beea-3673a4a6a756)
 
